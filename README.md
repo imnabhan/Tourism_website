@@ -1,6 +1,4 @@
-Absolutely, Nabhan! Let's turn that README into something that *pops* and represents your creativity 💥🌍
 
-Here’s a ✨ **cool and professional README** for your **Tourism Website** project, with emojis, clean formatting, and a modern touch:
 
 ---
 
